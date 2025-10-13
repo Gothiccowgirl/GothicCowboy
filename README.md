@@ -4,5 +4,5 @@
 ${\textsf{\color{#FAE3C6}I am not a proshipper!!}}$ , but i will be friends with them! 
 
 
-situation strawpage temp removed for now.
 
+<img width="1000" height="295" alt="image" src="https://github.com/user-attachments/assets/35bfc265-9296-423b-957b-ec0fa393c54e" />
