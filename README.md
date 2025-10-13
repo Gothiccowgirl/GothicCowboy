@@ -9,5 +9,6 @@ ${\textsf{\color{#FAE3C6}I am not a proshipper!!}}$ , but i will be friends with
 
 
 
-
+#callouts on BOTH of these.. LOSERS!!
 <img width="1000" height="295" alt="image" src="https://github.com/user-attachments/assets/35bfc265-9296-423b-957b-ec0fa393c54e" />
+<img width="1000" height="340" alt="image" src="https://github.com/user-attachments/assets/6f8f6d9a-db67-4286-9e14-7027e0a2bcf0" />
