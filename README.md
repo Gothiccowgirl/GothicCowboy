@@ -16,8 +16,9 @@ wip .
  Discord ; GothicBvnny 
 
 
-
-                                   
+i spent five hours on this drawing so you have to see it now.
+             <img width="1080" height="2340" alt="image" src="https://github.com/user-attachments/assets/70a95071-2428-4df2-b166-dacb8883df37" />
+                  
                                    
 
 
